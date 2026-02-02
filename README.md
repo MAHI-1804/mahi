@@ -1,4 +1,4 @@
 # mahi
-hello
+'THE HARDEST CHOICE REQUIRE THE STRONGEST WILLS'
 <br>
-Great power comes with great responsibility.
+-THANOS
